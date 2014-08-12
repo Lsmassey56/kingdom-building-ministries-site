@@ -22,7 +22,7 @@ Gaza and Israel, Ukrainian rebels, Latin America’s dangerous drug cartels… t
 
 With the frightful headlines of our day, our response as believers is important.  
 
-Oftentimes we feel the need before us is too great for our help to make a difference...if we even knew how to help.  Moreover, ignorance may seem preferable over looking pain and suffering in the eye, and we wash our hands of any responsibility awareness might bring.  The truth is, responding to the unbearable reality, the questions and the incurable circumstances around us doesn’t come easy.  But the world needs Hope and we can point them there.  And when we don’t know what to do, we can pray.  
+Oftentimes we feel the need before us is too great for our help to make a difference...if we even knew how to help.  Moreover, ignorance may seem preferable over looking pain and suffering in the eye, and we wash our hands of any responsibility awareness might bring.  The truth is, responding to the unbearable reality, the questions and the incurable circumstances around us doesn’t come easy.  But the world needs Hope and we can point them there.  And when we don’t know what to do, *we can pray*.  
 
 While you engage the current news and conversation, employ your "first responder" ...prayer...asking God to help guide you to intercede in accordance with His heart and His truth.  The emotion felt while interceding might just be gut-wrenching...but will you allow yourself to be uncomfortable?  Prayer does make a difference.
 
